@@ -35,3 +35,5 @@ Smart, health-focused kitchen guides — non-toxic cookware, juicers, and practi
 
 ## 🔗 Connect
 Feel free to reach out or explore any of the sites above. I'm always updating content with new science, tools, and solutions to help others live better.
+- See all my work: [About.me profile](https://about.me/meitaljames)
+
