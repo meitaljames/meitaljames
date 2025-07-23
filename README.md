@@ -28,7 +28,7 @@ Smart, health-focused kitchen guides — non-toxic cookware, juicers, and practi
 
 ## 🧩 Other Profiles & Projects
 
-- [My Wikidata Profile](https://www.wikidata.org/wiki/Q135432087)
+- [My Wikidata Profile](https://www.wikidata.org/wiki/Q135437355)
 - [Crunchbase Profiles](https://www.crunchbase.com/person/meital-james)
 
 ---
